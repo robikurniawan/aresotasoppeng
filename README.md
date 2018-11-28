@@ -1,0 +1,2 @@
+# aresotasoppeng
+CV. Aresota Soppeng
